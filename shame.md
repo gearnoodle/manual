@@ -27,7 +27,7 @@ So later I started to feel shame about **that**.
 But later I realized that shame is a wonderful sign in a human's life. 
 
 Better name for shame would be Tolerance. Tolerance of being judged.  
-Shame is also sensed judgement eminating from others.  
+Shame is also the feeling of being judged by others.  
 
 When you born, you have very little shame about yourself.  
 When you grow up, you bump into the real world and you need to get ready for being judged.  
