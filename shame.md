@@ -35,7 +35,7 @@ At first you can't stand any judgement.
 But shame indicates that you've grown a bit and also that there is a long road of shame ahead of you.  
 As an adult you don't feel shame anymore about the things you used to.
 
-I, for crying out loud, was ashamed of using or buying deodorant when I was 16 or so.
+I, for crying out loud, was ashamed of using or buying deodorant when I was 16 or so because I found it very intimate subject.
 Or watching Ally Mc'Beal from TV even if I wanted to, but brother kept shouting how stupid show that is, so I did hide once again.
 
 It is good for a person in their life to yearn to act constantly more shamefully, so that they can tolerate shame even more. But with a good strategy, so that it wouldn't annoy others too much.  
