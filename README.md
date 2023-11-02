@@ -5,3 +5,6 @@ Gearnoodle's Manual is some *extremely* simple philosophical guides for improvin
 Licence for all content at the moment is CC-0.
 
 Enjoy.
+
+Manu Järvinen  
+manu@gearnoodle.org  
