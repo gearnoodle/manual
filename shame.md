@@ -24,14 +24,19 @@ And got addicted to asking questions during the day.
 I even started to boast a bit, asking *too many* questions.  
 So later I started to feel shame about **that**.  
 
-But later I realized that shame is a wonderful sign in a human's life.  
-Better name for shame would be = tolerance of being judged  
-Shame is sensed judgement eminating from others.  
+But later I realized that shame is a wonderful sign in a human's life. 
+
+Better name for shame would be Tolerance. Tolerance of being judged.  
+Shame is also sensed judgement eminating from others.  
 
 When you born, you have very little shame about yourself.  
 When you grow up, you bump into the real world and you need to get ready for being judged.  
 At first you can't stand any judgement.  
-But shame indicates that you've grown a bit  
+But shame indicates that you've grown a bit and also that there is a long road of shame ahead of you.  
+As an adult you don't feel shame anymore about the things you used to.
+
+I, for crying out loud, was ashamed of using or buying deodorant when I was 16 or so.
+Or watching Ally Mc'Beal from TV even if I wanted to, but brother kept shouting how stupid show that is, so I did hide once again.
 
 It is good for a person in their life to yearn to act constantly more shamefully, so that they can tolerate shame even more. But with a good strategy, so that it wouldn't annoy others too much.  
 
