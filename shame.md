@@ -44,5 +44,6 @@ I also managed to compliment the food in a restaurant. And I had a good reason f
 
 But it will take years of practice before I actually get better at handling shame.
 
+Text license: CC-0  
 Manu Järvinen  
 manu@gearnoodle.org  
