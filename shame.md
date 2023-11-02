@@ -1,16 +1,16 @@
 # Shame
 
-Definition:
-Shame is a distressing emotion stemming from self-disapproval or humiliation due to actions or situations conflicting with personal values or societal norms, leading to feelings of embarrassment, guilt, and a desire to hide.
-Shame is one of the emotions that undermine self-esteem. Feelings associated with shame include inadequacy, inferiority, and insignificance.
+Definition:  
+Shame is a distressing emotion stemming from self-disapproval or humiliation due to actions or situations conflicting with personal values or societal norms, leading to feelings of embarrassment, guilt, and a desire to hide.  
+Shame is one of the emotions that undermine self-esteem. Feelings associated with shame include inadequacy, inferiority, and insignificance.  
 
-I have a lot of issues with shame.
+I have a lot of issues with shame.  
 
-I rarely talk in meetings because of possible judgement coming from others.
-I rarely say to waiter elaborately if food was good in a restaurant because of possibly being judged also.
-I simply rarely give out any hints to others about how I truly would like to be and behave. I just hide.
-I'm way too afraid to sing or dance.
-The list goes on and on.
+I rarely talk in meetings because of possible judgement coming from others.  
+I rarely say to waiter elaborately if food was good in a restaurant because of possibly being judged also.  
+I simply rarely give out any hints to others about how I truly would like to be and behave. I just hide.  
+I'm way too afraid to sing or dance.  
+The list goes on and on.  
 
 ------
 
