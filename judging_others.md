@@ -6,5 +6,6 @@ Will edit this later
 
 Difficult subject
 
+Text license: CC-0  
 Manu Järvinen  
 manu@gearnoodle.org  
