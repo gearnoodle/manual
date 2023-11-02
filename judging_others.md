@@ -5,3 +5,6 @@ Even if you act absolutely sincerely, you might consciously or subconsciously ju
 Will edit this later
 
 Difficult subject
+
+Manu Järvinen  
+manu@gearnoodle.org  
