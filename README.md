@@ -1,5 +1,7 @@
-# Introduction to manual
+# Introduction to Gearnoodle's Manual
 
-Manual is *extremely* simple philosophical guides for improving yourself as a person.
+Gearnoodle's Manual is some *extremely* simple philosophical guides for improving yourself as a person.
+
+Licence for all content at the moment is CC-0.
 
 Enjoy.
