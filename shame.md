@@ -9,6 +9,8 @@ I have a lot of issues with shame.
 I rarely talk in meetings because of possible judgement coming from others.
 I rarely say to waiter elaborately if food was good in a restaurant because of possibly being judged also.
 I simply rarely give out any hints to others about how I truly would like to be and behave. I just hide.
+I'm way too afraid to sing or dance.
+The list goes on and on.
 
 ------
 
@@ -16,7 +18,8 @@ However,
 
 Just recently, I joined a religious meeting for non-religious people. 
 The folks there were extremely trusting and open.
-So in the meeting I opened my mouth.
+So in the meeting I opened my mouth. 
+Because it felt like 
 And got addicted to asking questions during the day.
 I even started to boast a bit, asking *too many* questions.
 So later I started to feel shame about **that**.
@@ -35,10 +38,6 @@ It is good for a person in their life to yearn to act constantly more shamefully
 I also managed to compliment the food in a restaurant. And I had a good reason for it, the food was good. Thinking about complementing made me nervous at first, but I figured that my ideal self would do that, so that's what I did. I felt the shame immediately, but the waiters took it extremely nicely and laughed even sincerely.
 
 But it will take years of practice before I actually get better at handling shame.
-
-
-next: judging others
-
 
 Manu Järvinen
 manu@gearnoodle.org
