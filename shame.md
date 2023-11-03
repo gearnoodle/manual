@@ -44,6 +44,8 @@ I also managed to compliment the food in a restaurant. And I had a good reason f
 
 But it will take years of practice before I actually get better at handling shame.
 
+This I'll tell for my future self, I'd like to be developed to the better in this when I read this next time: I played Village People's Go West from my phone while waiting for the metro train, I played it with sounds on, scary :P Small things like this gradually take me to the better direction, I feel.
+
 Text license: CC-0  
 Manu Järvinen  
 manu@gearnoodle.org  
