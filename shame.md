@@ -10,6 +10,9 @@ I wonder what will be the next shameful challenge? The step needs to be small en
 
 2023-11-03: Next, I played a youtube video in full volume in my empty room but with windows pointing to street, where people walked past the windows. Nicely done!  
 2023-11-03: Next, I whistled the same song loudly in an empty room but with windows pointing to street, where people walked past the windows. Nicely done! Got some small chills/vibes from doing so :)
+2023-11-03: Next, I turned on Siri in my phone and tested out talking to it, also made a short voice memo with it. Got some small chills/bives from doing so :) - Also tried a little bit of Karaoke, just a tiny bit, while the music was playing
+2023-11-03: The next question is, can I keep this up or is this just a short phase? But at least I have the feeling that once I've tried those things, it's a bit easier next time.
+2023-11-03: It feels like I'm learning to use current technology all over again, like I never knew what it is capable to do.
 
 ------
 
