@@ -4,6 +4,14 @@ Definition:
 Shame is a distressing emotion stemming from self-disapproval or humiliation due to actions or situations conflicting with personal values or societal norms, leading to feelings of embarrassment, guilt, and a desire to hide.  
 Shame is one of the emotions that undermine self-esteem. Feelings associated with shame include inadequacy, inferiority, and insignificance.  
 
+This I'll tell for my future self, I'd like to be developed to the better in this when I read this next time: I played Village People's Go West from my phone while waiting for the metro train, I played it with sounds on, scary :P Small things like this gradually take me to the better direction, I feel.
+
+I wonder what will be the next shameful challenge? The step needs to be small enough, that you feel comfortable taking it - but long enough, in the sense that before you wouldn't have behaved that way.
+
+------
+
+Non-essential text:  
+
 I have a lot of issues with shame.  
 
 I rarely talk in meetings because of possible judgement coming from others.  
@@ -44,7 +52,7 @@ I also managed to compliment the food in a restaurant. And I had a good reason f
 
 But it will take years of practice before I actually get better at handling shame.
 
-This I'll tell for my future self, I'd like to be developed to the better in this when I read this next time: I played Village People's Go West from my phone while waiting for the metro train, I played it with sounds on, scary :P Small things like this gradually take me to the better direction, I feel.
+
 
 Text license: CC-0  
 Manu Järvinen  
