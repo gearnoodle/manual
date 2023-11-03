@@ -8,6 +8,9 @@ This I'll tell for my future self, I'd like to be developed to the better in thi
 
 I wonder what will be the next shameful challenge? The step needs to be small enough, that you feel comfortable taking it - but long enough, in the sense that before you wouldn't have behaved that way.
 
+2023-11-03: Next, I played a youtube video in full volume in my empty room but with windows pointing to street, where people walked past the windows. Nicely done!
+2023-11-03: Next, I whistled the same song loudly in an empty room but with windows pointing to street, where people walked past the windows. Nicely done!
+
 ------
 
 Non-essential text:  
